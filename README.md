@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @AdityaXXC
+- 👋 Hi, I’m @Aditya
 - 👀 I’m interested in ...coding/trading
 - 🌱 I’m currently learning ...trading and revising my learned codes
 - 💞️ I’m looking to collaborate on ...making money
